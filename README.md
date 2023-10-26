@@ -8,7 +8,7 @@ Meu nome é Marianne
 
 ### Você pode entrar em contato comigo :mailbox
 
-marianne.pena@escol.pr.gov.br
+marianne.pena@escola.pr.gov.br
 @marianne028
 
 
